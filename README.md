@@ -9,3 +9,5 @@ https://docs.google.com/presentation/d/1jhaTH73MaJE_S2zpptV7h8GyTSjdSboyIbCTVJyy
 
 #БД
 https://drive.google.com/drive/folders/1HCG2-IxxcpD8bwMVScqWn34Tn9IXyEbm?usp=drive_link
+
+https://ru.yougile.com/board/9kw5d988qoyc
