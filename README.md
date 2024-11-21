@@ -10,6 +10,9 @@ https://docs.google.com/presentation/d/1jhaTH73MaJE_S2zpptV7h8GyTSjdSboyIbCTVJyy
 #БД
 https://drive.google.com/drive/folders/1HCG2-IxxcpD8bwMVScqWn34Tn9IXyEbm?usp=drive_link
 
+#Военная БД 
+https://drive.google.com/drive/folders/1pi-byshr44HIsArEgIMxgyYueKrW0QFg?usp=drive_link
+
 https://ru.yougile.com/board/9kw5d988qoyc
 
 https://drive.google.com/file/d/1yQCpLyN7kyB4CsMvdgC9qGgan1xmOh36/view?usp=drive_link
